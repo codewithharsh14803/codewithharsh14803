@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @codewithharsh14803
 - 👀 I’m interested reading books and playing games
-- 🌱 I’m currently learning 11th standard
+- 🌱 I’m currently learning in 11th standard
 - 💞️ I’m looking to collaborate on web developing
 - 📫 How to reach me via email dhankhar14804@gmail.com
 
